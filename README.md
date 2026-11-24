@@ -1,0 +1,1 @@
+Tylko do użytku osobistego
